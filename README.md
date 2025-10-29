@@ -7,7 +7,7 @@
 ° I'm usually on 18+ server, at bakery/library, mlp area, or strolling around.  
 ° w2i - I get shy about talking in public.   
 ° I use chat filtering with strangers.  
-° I'm happily married and i dont edate. no flirting/excessive kissing pls thx  
+° I'm happily married and i dont edate. no flirting/excessive kissing pls thx.  
 
 
 <img width="99" height="56" alt="506708459-6afa54dc-a4a6-431d-824e-2d1240202a9c" src="https://github.com/user-attachments/assets/d8c5d5bf-fa7e-45ff-8768-0b1df6a74ee1" /><img width="99" height="56" alt="506716097-3ff9cbb6-6294-4e3f-b1e6-9e79e5190964" src="https://github.com/user-attachments/assets/a57e0762-a95b-445d-a10d-7a89291b2a80" />  
@@ -26,14 +26,15 @@
 
 ### **I N T E R E S T S ::**
 ➥ Azur Lane  
-➥ Cookie Run (ToA)  
 ➥ Metalocalypse  
+➥ Minecraft
 ➥ Naruto  
+➥ NIKKE  
 ➥ Neon Genesis Evangelion  
 ➥ South Park  
 ➥ Umamusume  
 ➥ Vocaloid  
-➥ Wrestling (WWE, AEW, TNA, Stardom)
+➥ Wrestling (WWE, AEW, TNA, Stardom)  
 
 ---
 
@@ -45,16 +46,12 @@
 ---
 
 ### **D N I ::**
-➥ Systems  
 ➥ Vivziepop / Helluva / Hazbin  
 ➥ Jjba  
 ➥ MHA  
-➥ Incest / Zoos  
+➥ Systems  
 ➥ Minors (-21)  
-➥ Loli/Shota • MAPs  
-➥ Racists • Homo/Transphobes & TERFs • Sexists  
 ➥ Political partisans + Gender/Sexuality politics  
-➥ Religious missionaries  
 
 ---
 
