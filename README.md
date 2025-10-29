@@ -6,8 +6,9 @@
 
 ° I'm usually on 18+ server, at bakery/library, mlp area, or strolling around.  
 ° w2i - I get shy about talking in public.   
+° I use chat filtering with strangers.  
 ° I'm happily married and i dont edate. no flirting/excessive kissing pls thx  
-° I use chat filtering with strangers. 
+
 
 <img width="99" height="56" alt="506708459-6afa54dc-a4a6-431d-824e-2d1240202a9c" src="https://github.com/user-attachments/assets/d8c5d5bf-fa7e-45ff-8768-0b1df6a74ee1" /><img width="99" height="56" alt="506716097-3ff9cbb6-6294-4e3f-b1e6-9e79e5190964" src="https://github.com/user-attachments/assets/a57e0762-a95b-445d-a10d-7a89291b2a80" />  
 
