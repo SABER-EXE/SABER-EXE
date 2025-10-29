@@ -27,7 +27,7 @@
 ### **I N T E R E S T S ::**
 ➥ Azur Lane  
 ➥ Metalocalypse  
-➥ Minecraft
+➥ Minecraft  
 ➥ Naruto  
 ➥ NIKKE  
 ➥ Neon Genesis Evangelion  
