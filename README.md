@@ -1,6 +1,6 @@
 <div align="center">
 
-## ‿̩͙⊱༒︎━━ S A B E R | 27 | she/they ━━༒︎⊰‿̩͙
+## ‿̩͙⊱༒︎━━ S A B E R | 27 ━━༒︎⊰‿̩͙
 
 **`Content Creator (Artist / Adult Model / Cosplayer)`**
 
