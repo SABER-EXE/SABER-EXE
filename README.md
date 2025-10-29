@@ -1,6 +1,6 @@
 <div align="center">
 
-# ‿̩͙⊱༒︎━━﹙ S A B E R | 27 | she/they | C+H ﹚━━༒︎⊰‿̩͙
+## ‿̩͙⊱༒︎━━﹙ S A B E R | 27 | she/they | C+H ﹚━━༒︎⊰‿̩͙
 
 **`Content Creator (Artist / Adult Model / Cosplayer)`**
 
@@ -9,32 +9,15 @@
 ° I'm happily married and i dont edate. no flirting/excessive kissing pls thx  
 ° I use chat filtering with strangers. 
 
+<img width="99" height="56" alt="506708459-6afa54dc-a4a6-431d-824e-2d1240202a9c" src="https://github.com/user-attachments/assets/d8c5d5bf-fa7e-45ff-8768-0b1df6a74ee1" /><img width="99" height="56" alt="506716097-3ff9cbb6-6294-4e3f-b1e6-9e79e5190964" src="https://github.com/user-attachments/assets/a57e0762-a95b-445d-a10d-7a89291b2a80" />  
 
-<img width="99" height="56" alt="d8v2ppc-39f7dd05-90ef-416f-b44a-8b9220a54114" src="https://github.com/user-attachments/assets/6afa54dc-a4a6-431d-824e-2d1240202a9c" /><img width="99" height="56" alt="d8v2owy-ce5fd0b4-1da5-45be-a342-067ea51c6163" src="https://github.com/user-attachments/assets/3ff9cbb6-6294-4e3f-b1e6-9e79e5190964" />  
+![506790580-695c85fa-c246-4272-9c96-7b67c34312da](https://github.com/user-attachments/assets/36974461-f8fe-4304-b8f0-5bad7997aa8c)![506780421-fc13aa8c-9e8a-4a8f-a5ce-39efb26dc61b](https://github.com/user-attachments/assets/14804eef-4a9c-46a7-9785-19a5cabb3c6b)![506737167-b72fadd0-0215-47a1-ac0e-47fbc5341355](https://github.com/user-attachments/assets/1a27aae4-b8a2-4c6b-803a-fc7e27c23789)<img width="99" height="55" alt="506748358-ad006a63-c590-463e-a739-24e73e2734e5" src="https://github.com/user-attachments/assets/109f6f7e-1e67-4b77-b10f-4555ddd21d40" />  
+<img width="99" height="56" alt="506758855-77fe0aeb-9758-4f81-85d6-d25b04cb003e" src="https://github.com/user-attachments/assets/30d09c2c-262d-460d-b7df-459a30fadfc3" /><img width="99" height="56" alt="506748406-aea5a8e5-9d0d-4c53-aa71-585a05129467" src="https://github.com/user-attachments/assets/2b051474-ea30-4653-af73-92e6f4a55d8a" />![506748425-1eea2755-0805-4cb5-9a14-df87b486aff1](https://github.com/user-attachments/assets/de3240e9-6e98-4c4a-a819-db8e6e8d31d2)<img width="99" height="56" alt="506759550-e347abab-0df0-4870-8d03-973db7a17304" src="https://github.com/user-attachments/assets/6800b683-2ac3-499f-97b1-cbc336fc7c73" /><img width="99" height="55" alt="506753019-01496951-363f-4816-a0ab-c5ef4ad6e8d6" src="https://github.com/user-attachments/assets/9579a4d7-775c-4397-a48c-710f2a7ea358" /><img width="99" height="56" alt="506786239-08d3ba32-0047-4de3-aaaa-2bdb624cd143" src="https://github.com/user-attachments/assets/5b1db5e0-167e-4439-844d-c874ec608d82" />  
+![506758884-4bbbea88-c247-4d59-b722-5fd99faee989](https://github.com/user-attachments/assets/c6f3bf36-7624-463f-84d9-3da5861b9b7a)![506752791-781500dc-bb30-460e-8847-7714c0121cf9](https://github.com/user-attachments/assets/ab4d0e2f-7e91-4343-acd1-55804090c9c4)
+<img width="99" height="55" alt="506778660-7ea5268e-8f27-4769-aa04-82ee9f01e4ac" src="https://github.com/user-attachments/assets/fe4e8b97-6ec9-4a3a-abc3-8015f18930b1" />![506786098-6d62679e-74c3-4ed0-a56c-3520d4cc2d54](https://github.com/user-attachments/assets/e81f3df1-3d49-45c6-9876-61eda58902c3)![506786009-c25244bd-9569-4571-9eda-7c566929c11c](https://github.com/user-attachments/assets/14e2a4cd-7f30-452f-870c-da2fc1913a51)  
+![506762901-ec88be42-12f2-4ded-945c-4f2d391c70e0](https://github.com/user-attachments/assets/a608848d-9217-423a-9e09-33d8aa0b28bd)![506778789-52f99cf3-8f1c-4361-ac51-50ccd4164322](https://github.com/user-attachments/assets/1ae2452a-e7bc-4cbd-82ee-b1b2e1b81df4)![506780170-b14672c0-2a83-46ee-ac63-2f588e611a55](https://github.com/user-attachments/assets/89cd75bc-77c3-47d3-85a6-285bbe66e26b)  
 
-![d5](https://github.com/user-attachments/assets/695c85fa-c246-4272-9c96-7b67c34312da)![d7v3xfz-1ba0098b-6650-4f4b-a22e-e1f0d15cfe92](https://github.com/user-attachments/assets/fc13aa8c-9e8a-4a8f-a5ce-39efb26dc61b) ![i_like_them_biter_by_zombunster_d66rjnf-fullview](https://github.com/user-attachments/assets/b72fadd0-0215-47a1-ac0e-47fbc5341355)
-<img width="99" height="55" alt="dazdznl-68e47206-cd94-4392-aa1b-a71c256fe36c" src="https://github.com/user-attachments/assets/ad006a63-c590-463e-a739-24e73e2734e5" />  
-<img width="99" height="56" alt="debq52z-ee443659-0313-4c86-a276-8f38d7665390" src="https://github.com/user-attachments/assets/8eacd463-7f06-42fa-8f3a-62400142abae" /><img width="99" height="56" alt="dbxzr9u-13908ace-cfff-4d37-aac4-ae373644283b" src="https://github.com/user-attachments/assets/aea5a8e5-9d0d-4c53-aa71-585a05129467" />![d531hqp-93b7f398-ba1e-4ad0-b42c-764249cd5741](https://github.com/user-attachments/assets/1eea2755-0805-4cb5-9a14-df87b486aff1)![d4czjfe-11d83c5d-50b0-4705-8ffe-4f73c9146168](https://github.com/user-attachments/assets/781500dc-bb30-460e-8847-7714c0121cf9)<img width="99" height="55" alt="d8aa6xe-ff4ca366-aae6-444b-b6e4-8fe475d83443" src="https://github.com/user-attachments/assets/01496951-363f-4816-a0ab-c5ef4ad6e8d6" />  
-<img width="99" height="56" alt="ddf1ld8-fd7df668-c20f-495c-aa4b-6d3c2f03e41b" src="https://github.com/user-attachments/assets/77fe0aeb-9758-4f81-85d6-d25b04cb003e" />![help_stamp_by_foxy_sketches_d2bx9wq-fullview](https://github.com/user-attachments/assets/4bbbea88-c247-4d59-b722-5fd99faee989)<img width="99" height="56" alt="d9ourkv-2d4bdd88-1bcc-409b-bafb-e161826628d6" src="https://github.com/user-attachments/assets/e347abab-0df0-4870-8d03-973db7a17304" />![not_into_kpop__stamp__by_caramel_soda_d4bvbx7-fullview](https://github.com/user-attachments/assets/ec88be42-12f2-4ded-945c-4f2d391c70e0)![medieval_knights_armor_by_themoonraven_dajiv4i-fullview](https://github.com/user-attachments/assets/6d62679e-74c3-4ed0-a56c-3520d4cc2d54)<img width="99" height="56" alt="ddpsrrn-f5eaf56a-99d2-46a1-83bf-86621dc0a543" src="https://github.com/user-attachments/assets/08d3ba32-0047-4de3-aaaa-2bdb624cd143" />  
-<img width="99" height="55" alt="dfg47kv-44d19e88-8e98-4ff4-b22b-661468771867" src="https://github.com/user-attachments/assets/7ea5268e-8f27-4769-aa04-82ee9f01e4ac" />![dd5iep5-a5d35ca9-c54d-43e7-b355-8b5380221f98](https://github.com/user-attachments/assets/52f99cf3-8f1c-4361-ac51-50ccd4164322)![d3d03en-5e8191f0-255b-4898-9a0b-7b80f83d66a7](https://github.com/user-attachments/assets/c25244bd-9569-4571-9eda-7c566929c11c)
- ![d132xdl-d46d5ed7-a7bd-4aa9-8c01-3778fb684aeb](https://github.com/user-attachments/assets/b14672c0-2a83-46ee-ac63-2f588e611a55)  
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-![0034-skull](https://github.com/user-attachments/assets/4cf86243-8c1d-4319-9530-c7d350f7a81a)![0052-cancer](https://github.com/user-attachments/assets/a5421e44-4b0e-4654-b9a0-51adc1a716bc)![tumblr_inline_pcjgdawteA1vss73l_250](https://github.com/user-attachments/assets/ff0ad25b-14dd-4f6d-abc9-5793398c8e69)
+![506719197-4cf86243-8c1d-4319-9530-c7d350f7a81a](https://github.com/user-attachments/assets/11a8fa56-52a3-4d29-8226-44f2df7add68)![506719880-a5421e44-4b0e-4654-b9a0-51adc1a716bc](https://github.com/user-attachments/assets/04c4a4e4-3f55-4b9b-a052-00dcda564eb9)![506743023-ff0ad25b-14dd-4f6d-abc9-5793398c8e69](https://github.com/user-attachments/assets/333e9531-a958-4806-bcec-45c4be62959c)
 
 
 
