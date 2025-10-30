@@ -2,16 +2,10 @@
 
 ## ‿̩͙⊱༒︎━━ S A B E R | 27 ━━༒︎⊰‿̩͙
 
-**`Content Creator (Artist / Adult Model / Cosplayer)`**
-
-° I'm usually on 18+ server, at bakery/library, mlp area, or strolling around.  
-° w2i - I get shy about talking in public.   
-° I use chat filtering with strangers.  
-° I'm happily married and i dont edate. no flirting/excessive kissing pls thx.  
+**`C + H | w2i | No Excesive kissing/flirting `**  
 
 
 <img width="99" height="56" alt="506708459-6afa54dc-a4a6-431d-824e-2d1240202a9c" src="https://github.com/user-attachments/assets/d8c5d5bf-fa7e-45ff-8768-0b1df6a74ee1" /><img width="99" height="56" alt="506716097-3ff9cbb6-6294-4e3f-b1e6-9e79e5190964" src="https://github.com/user-attachments/assets/a57e0762-a95b-445d-a10d-7a89291b2a80" />  
-
 ![506790580-695c85fa-c246-4272-9c96-7b67c34312da](https://github.com/user-attachments/assets/36974461-f8fe-4304-b8f0-5bad7997aa8c)![506780421-fc13aa8c-9e8a-4a8f-a5ce-39efb26dc61b](https://github.com/user-attachments/assets/14804eef-4a9c-46a7-9785-19a5cabb3c6b)![506737167-b72fadd0-0215-47a1-ac0e-47fbc5341355](https://github.com/user-attachments/assets/1a27aae4-b8a2-4c6b-803a-fc7e27c23789)<img width="99" height="55" alt="506748358-ad006a63-c590-463e-a739-24e73e2734e5" src="https://github.com/user-attachments/assets/109f6f7e-1e67-4b77-b10f-4555ddd21d40" />  
 <img width="99" height="56" alt="506758855-77fe0aeb-9758-4f81-85d6-d25b04cb003e" src="https://github.com/user-attachments/assets/30d09c2c-262d-460d-b7df-459a30fadfc3" /><img width="99" height="56" alt="506748406-aea5a8e5-9d0d-4c53-aa71-585a05129467" src="https://github.com/user-attachments/assets/2b051474-ea30-4653-af73-92e6f4a55d8a" />![506748425-1eea2755-0805-4cb5-9a14-df87b486aff1](https://github.com/user-attachments/assets/de3240e9-6e98-4c4a-a819-db8e6e8d31d2)<img width="99" height="56" alt="506759550-e347abab-0df0-4870-8d03-973db7a17304" src="https://github.com/user-attachments/assets/6800b683-2ac3-499f-97b1-cbc336fc7c73" /><img width="99" height="55" alt="506753019-01496951-363f-4816-a0ab-c5ef4ad6e8d6" src="https://github.com/user-attachments/assets/9579a4d7-775c-4397-a48c-710f2a7ea358" /><img width="99" height="56" alt="506786239-08d3ba32-0047-4de3-aaaa-2bdb624cd143" src="https://github.com/user-attachments/assets/5b1db5e0-167e-4439-844d-c874ec608d82" />  
 ![506758884-4bbbea88-c247-4d59-b722-5fd99faee989](https://github.com/user-attachments/assets/c6f3bf36-7624-463f-84d9-3da5861b9b7a)![506752791-781500dc-bb30-460e-8847-7714c0121cf9](https://github.com/user-attachments/assets/ab4d0e2f-7e91-4343-acd1-55804090c9c4)
